@@ -8,7 +8,7 @@ mother!!! [lazy!! ♡](https://github.com/lazikoly)
 sis!!! [miko!! ♡](https://github.com/ramun3)
 bro!! [Skid!! ♡](https://github.com/SKIDSpooKz)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 Aunties !! [gabs!! ♡](https://github.com/corner-dweller)
-[Bella!! ♡](https://github.com/GhostlyGirlfriend)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+[Bella!! ♡](https://github.com/GhostlyGirlfriend)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 fav homiesㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 [mira!! ♡](https://github.com/mewmajestic) 
 [mirai!! ♡](https://github.com/likittn)
