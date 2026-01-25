@@ -11,3 +11,4 @@ fav homiesㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ�
 [mira!! ♡](https://github.com/mewmajestic) 
 [mirai!! ♡](https://github.com/likittn)
 [sasha!! ♡](https://github.com/sxshaae)
+[whispery!! ♡](https://github.com/whiskeii)
