@@ -6,4 +6,4 @@ dc:skuisr , ask before adding ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ�
 online family ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 mother!!! [lazy!! ♡](https://github.com/lazikoly)
 sis!!! [miko!! ♡](https://github.com/ramun3)
-bro!! [Skid!! ♡](https://github.com/SKIDSpooKz)
+bro!! [Skid!! ♡](https://github.com/SKIDSpooKz)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
