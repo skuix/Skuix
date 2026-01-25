@@ -2,11 +2,14 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-dc:skuisr , ask before adding ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤonline family ㅤㅤmother!!! [lazy!! ♡](https://github.com/lazikoly)ㅤ
-sis!!! [miko!! ♡](https://github.com/ramun3)ㅤbro!! [Skid!! ♡](https://github.com/SKIDSpooKz)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-Aunties !! [gabs!! ♡](https://github.com/corner-dweller)ㅤㅤㅤ
-[Bella!! ♡](https://github.com/GhostlyGirlfriend)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-grandpa!! [Metalz!! ♡](https://github.com/metalzXasukaz)ㅤㅤㅤㅤㅤㅤㅤㅤㅤfav homiesㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+dc:skuisr , ask before adding  
+online family  
+mother!!! [lazy!! ♡](https://github.com/lazikoly)  
+sis!!! [miko!! ♡](https://github.com/ramun3)  
+bro!! [Skid!! ♡](https://github.com/SKIDSpooKz)  
+Aunties !! [gabs!! ♡](https://github.com/corner-dweller) [Bella!! ♡](https://github.com/GhostlyGirlfriend)  
+grandpa!! [Metalz!! ♡](https://github.com/metalzXasukaz)  
+fav homiesㅤ
 [mira!! ♡](https://github.com/mewmajestic) 
 [mirai!! ♡](https://github.com/likittn)
 [sasha!! ♡](https://github.com/sxshaae)
