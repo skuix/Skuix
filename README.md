@@ -2,11 +2,10 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-dc:skuisr , ask before adding ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤonline family ㅤmother!!! [lazy!! ♡](https://github.com/lazikoly)ㅤㅤㅤㅤ
-sis!!! [miko!! ♡](https://github.com/ramun3)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-bro!! [Skid!! ♡](https://github.com/SKIDSpooKz)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+dc:skuisr , ask before adding ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤonline family ㅤㅤmother!!! [lazy!! ♡](https://github.com/lazikoly)ㅤ
+sis!!! [miko!! ♡](https://github.com/ramun3)ㅤbro!! [Skid!! ♡](https://github.com/SKIDSpooKz)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 Aunties !! [gabs!! ♡](https://github.com/corner-dweller)ㅤㅤㅤ
-[Bella!! ♡](https://github.com/GhostlyGirlfriend)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+[Bella!! ♡](https://github.com/GhostlyGirlfriend)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 grandpa!! [Metalz!! ♡](https://github.com/metalzXasukaz)ㅤㅤㅤㅤㅤㅤㅤㅤㅤfav homiesㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 [mira!! ♡](https://github.com/mewmajestic) 
 [mirai!! ♡](https://github.com/likittn)
