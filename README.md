@@ -1,7 +1,7 @@
 ![Image](https://github.com/user-attachments/assets/427d548d-d89b-45d9-8c79-dc22d1354afe)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+  
 ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+  
 dc:skuisr , ask before adding  
 online family  
 mother!!! [lazy!! ♡](https://github.com/lazikoly)  
@@ -9,7 +9,10 @@ sis!!! [miko!! ♡](https://github.com/ramun3)
 bro!! [Skid!! ♡](https://github.com/SKIDSpooKz)  
 Aunties !! [gabs!! ♡](https://github.com/corner-dweller) [Bella!! ♡](https://github.com/GhostlyGirlfriend)  
 grandpa!! [Metalz!! ♡](https://github.com/metalzXasukaz)  
-fav homiesㅤ
+ 
+⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆
+  
+fav homies  
 [mira!! ♡](https://github.com/mewmajestic) 
 [mirai!! ♡](https://github.com/likittn)
 [sasha!! ♡](https://github.com/sxshaae)
