@@ -14,7 +14,7 @@ grandpa!! [Metalz!! ♡](https://github.com/metalzXasukaz)
   
 fav homies  
 [mira!! ♡](https://github.com/mewmajestic) 
-[mira#2!! ♡](https://github.com/likittn)
+[mira#2!! ♡](https://github.com/lilkittn)
 [sasha!! ♡](https://github.com/sxshaae)
 [whispery!! ♡](https://github.com/whiskeii)
 [elysia!! ♡](https://github.com/yurifwul)
