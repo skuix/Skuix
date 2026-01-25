@@ -12,3 +12,4 @@ fav homiesㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ�
 [mirai!! ♡](https://github.com/likittn)
 [sasha!! ♡](https://github.com/sxshaae)
 [whispery!! ♡](https://github.com/whiskeii)
+[elysian!! ♡](https://github.com/yurifwul)
