@@ -4,17 +4,18 @@
   
 ㅤㅤㅤㅤㅤㅤㅤdc:skuisr , ask before adding  
 online family  
-mother!!! [lazy!! ♡](https://github.com/lazikoly)  
-sis!!! [miko!! ♡](https://github.com/ramun3)  
-bro!! [Skid!! ♡](https://github.com/SKIDSpooKz)  
-Aunties !! [gabs!! ♡](https://github.com/corner-dweller) [Bella!! ♡](https://github.com/GhostlyGirlfriend)  
-grandpa!! [Metalz!! ♡](https://github.com/metalzXasukaz)  
+Mother!!! [Lazy!! ♡](https://github.com/lazikoly)  
+Sis!!! [Miko!! ♡](https://github.com/ramun3)  
+Bro!! [Skid!! ♡](https://github.com/SKIDSpooKz)  
+Aunties !! [Gabs!! ♡](https://github.com/corner-dweller) [Bella!! ♡](https://github.com/GhostlyGirlfriend)  
+Grandpa!! [Metalz!! ♡](https://github.com/metalzXasukaz)  
  
 ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆
   
-fav homies  
-[mira!! ♡](https://github.com/mewmajestic) 
-[mira#2!! ♡](https://github.com/lilkittn)
-[sasha!! ♡](https://github.com/sxshaae)
-[whispery!! ♡](https://github.com/whiskeii)
-[elysia!! ♡](https://github.com/yurifwul)
+Fav homies  
+[Mira!! ♡](https://github.com/mewmajestic) 
+[Mira#2!! ♡](https://github.com/lilkittn)
+[Sasha!! ♡](https://github.com/sxshaae)
+[Whispery!! ♡](https://github.com/whiskeii)
+[Elysia!! ♡](https://github.com/yurifwul)
+[Yatta!! ♡](https://github.com/ilyYatta)
