@@ -2,7 +2,7 @@
   
 ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆
   
-ㅤㅤㅤㅤㅤㅤㅤdc:skuisr , ask before adding  
+ㅤㅤㅤㅤㅤㅤㅤdc:skuisr. , ask before adding  
 online family  
 Mother!!! [Lazy!! ♡](https://github.com/lazikoly)  
 Sis!!! [Miko!! ♡](https://github.com/ramun3)  
