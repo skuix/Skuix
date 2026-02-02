@@ -7,7 +7,7 @@ online family
 Mother!!! [Lazy!! ♡](https://github.com/lazikoly)  
 Sis!!! [Miko!! ♡](https://github.com/ramun3)  
 Bro!! [Skid!! ♡](https://github.com/SKIDSpooKz)  
-Aunties !! [Gabs!! ♡](https://github.com/corner-dweller) [Bella!! ♡](https://github.com/NoLoveInTheHouseOfG0ld)  
+Auntie !! [Bella!! ♡](https://github.com/NoLoveInTheHouseOfG0ld)  
 Grandpa!! [Metalz!! ♡](https://github.com/metalzXasukaz)  
  
 ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆
