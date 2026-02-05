@@ -18,4 +18,5 @@ Fav homies
 [Sasha!! ♡](https://github.com/sxshaae)
 [Whispery!! ♡](https://github.com/whiskeii)
 [Elysia!! ♡](https://github.com/yurifwul)
-[Yatta!! ♡](https://github.com/ilyYatta)
+[Yatta!! ♡](https://github.com/ilyYatta)  
+[Hamst!! ♡](https://github.com/gutscasis)
