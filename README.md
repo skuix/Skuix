@@ -10,11 +10,11 @@ Sis!!! [Miko!! ♡](https://github.com/ramun3)
 Bro!! [Skid!! ♡](https://github.com/SKIDSpooKz)  
 Aunties !! [Bella!! ♡](https://github.com/NoLoveInTheHouseOfG0ld)  [Gabs!! ♡](https://github.com/corner-dweller)  
 Grandpa!! [Metalz!! ♡](https://github.com/metalzXasukaz)  
- 
+My wife!! (jokingly) [Mira!! ♡](https://github.com/mewmajestic) 
+my child!! [Nicky!! ♡](https://github.com/sillysonic)
 ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆
   
 Fav homies  
-[Mira!! ♡](https://github.com/mewmajestic) 
 [Mira#2!! ♡](https://github.com/lilkittn)
 [Sasha!! ♡](https://github.com/sxshaae)
 [Whispery!! ♡](https://github.com/whiskeii)
