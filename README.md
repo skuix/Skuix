@@ -11,7 +11,7 @@ Bro!! [Skid!! ♡](https://github.com/SKIDSpooKz)
 Aunties !! [Bella!! ♡](https://github.com/NoLoveInTheHouseOfG0ld)  [Gabs!! ♡](https://github.com/corner-dweller)  
 Grandpa!! [Metalz!! ♡](https://github.com/metalzXasukaz)  
 My wife!! (jokingly) [Mira!! ♡](https://github.com/mewmajestic)   
-my child!! [Nicky!! ♡](https://github.com/sillysonic)   
+my child!! [Nicky!! ♡](https://github.com/aliensonic)   
    
 ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆ㅤㅤ⋆
   
