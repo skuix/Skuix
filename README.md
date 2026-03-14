@@ -22,3 +22,4 @@ Fav homies
 [Elysia!! ♡](https://github.com/yurifwul)
 [Yatta!! ♡](https://github.com/ilyYatta)  
 [Hamst!! ♡](https://github.com/gutscasis)
+[Star!! ♡](https://github.com/Cosmeticstar) 
