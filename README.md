@@ -6,7 +6,7 @@
 ㅤㅤㅤㅤㅤㅤㅤdc:ㅤskuisr. , ask before adding  
 online family                      
 Mother!!! [Lazy!! ♡](https://github.com/lazikoly)  
-Sis!!! [Miko!! ♡](https://github.com/ramun3)  
+Sis!!! [Miko!! ♡](https://github.com/hausenbergerdoff)  
 Bro!! [Skid!! ♡](https://github.com/SKIDSpooKz)  
 Aunties !! [Bella!! ♡](https://github.com/NoLoveInTheHouseOfG0ld)  [Gabs!! ♡](https://github.com/corner-dweller)  
 Grandpa!! [Metalz!! ♡](https://github.com/metalzXasukaz)  
