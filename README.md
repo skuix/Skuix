@@ -1,2 +1,2 @@
-wip   
-![♡ cola&#39;s pink gif blog ♡](https://github.com/user-attachments/assets/413dec93-4093-4fcb-be77-7db3eea1db4e)
+this well be remarked soon if im not lazy to do it   
+![download (11)](https://github.com/user-attachments/assets/9503b293-76de-4608-b68b-60a1223a8295)
