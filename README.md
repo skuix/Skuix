@@ -1,3 +1,3 @@
-this well be edited soon if I'm not lazy to do it  
-![Static Badge](https://img.shields.io/badge/Baskets-12%2C092-white)  
-![Image](https://github.com/user-attachments/assets/2e63d869-ac72-422a-96fb-c5a267c5486c)
+★ ★ ★ ★  ♥︎  
+<img width="736" height="414" alt="Image" src="https://github.com/user-attachments/assets/b3b5d0a3-c86d-4bbc-b6ea-10fe4738fb8c" />  
+★ ★ ★ ★  ♥︎  
